@@ -1,7 +1,5 @@
-Oh! hello Traveler, My name is Can
+Oh! hello Traveler, My name is Can :candy:
 ==============================================================================================================================
-
-
 
 Information Technology
 -------
