@@ -1,4 +1,4 @@
-Oh! hello Traveler, My name is Can :candy:
+Oh! hello Traveler, My name is Can :hand:
 ==============================================================================================================================
 
 Information Technology
